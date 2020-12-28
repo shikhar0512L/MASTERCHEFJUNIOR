@@ -1,2 +1,1 @@
-# MASTERCHEFJUNIOR
-MAGGIE MAKING
+ Maggie is an international brand of seasonings, instant soups, and noodles that originated in Switzerland in late 19th century.
